@@ -8,13 +8,8 @@
 - 💬 Ask me about **Unity, Blender**
 
 - 📫 Reach me at **ojhaabhinav2016@gmail.com**
-<!--
-- 📄 Know about my experiences [Get My Resume](https://drive.google.com/file/d/1IToyz4c60fKEBC4tZhWs_WrCpjzVEOT2/view?usp=sharing)
--->
 
-<!-- ### Blogs posts -->
-<!-- BLOG-POST-LIST:START -->
-<!-- BLOG-POST-LIST:END -->
+- 📄 Know about my experiences [Get My Resume](https://drive.google.com/file/d/1CQqOrptgCKAU0dOu8jId44yrvhsUQVTS/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
