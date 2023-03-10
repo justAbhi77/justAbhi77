@@ -9,7 +9,7 @@
 
 - 📫 Reach me at **ojhaabhinav2016@gmail.com**
 
-- 📄 Know about my experiences [Get My Resume](https://drive.google.com/file/d/1CQqOrptgCKAU0dOu8jId44yrvhsUQVTS/view?usp=sharing)
+- 📄 Know about my experiences [Get My Resume](https://drive.google.com/file/d/1SMRRvoKt0gOEDf3H9ZO4E1ZVrbJgb78x/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
